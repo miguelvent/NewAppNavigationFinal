@@ -1,6 +1,5 @@
 ## Minha aplicação "AppNavigation" finalizada
 
-<img src="https://c.tenor.com/ZN4ZsO3I9JkAAAAC/app-for-that-theres-an-app-for-that.gif">
 
 #### Me encontre na web! ✨
   
